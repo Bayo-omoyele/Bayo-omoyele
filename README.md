@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Bayo-omoyele
+- 👀 I’m interested in Finance, Software Development, and Fintech
+- 🌱 I’m the founder of SavingsBox 
+- 💞️ I’m looking to collaborate with Cofounders in the Fintech space.
+- 📫 How to reach me vial mail: bomoyele@savingsbox.ng
